@@ -1,9 +1,8 @@
 # Bankable
 
-While at Bankable I helped [Angus Fergusson](https://www.linkedin.com/in/angusfergnz/) build up a customer success organisation from scratch  - and in turn he helped me kick-start my career in Sales! 
+While at Bankable I helped [Angus Fergusson](https://www.linkedin.com/in/angusfergnz/) build up a Customer Success organisation from scratch - and in turn he taught me to sell!
 
-While under Angus' tutelage I got the first 
+While we both moved on from Bankable, I'm confident that Angus still retains fond memories from our time together. You can contact him diretly on Linkedin or on the following:
 
-Contact details:
 ahfergusson@gmail.com
 +44 7767 415354 
